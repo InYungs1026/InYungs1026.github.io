@@ -1,1 +1,1 @@
-InYungs1026.github.io/index.html
+InYungs1026.github.io
